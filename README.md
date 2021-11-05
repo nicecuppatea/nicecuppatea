@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nicecuppatea
+- 👀 I’m interested in games
+- 🌱 I’m currently learning games
+- 💞️ I’m looking to collaborate on games
